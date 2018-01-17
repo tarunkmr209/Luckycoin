@@ -1,0 +1,2 @@
+# Luckycoin
+Join and Explore
